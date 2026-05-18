@@ -1,0 +1,2 @@
+# grant-writing-management-pricing-calculator-and-quote-builder
+Streamline your grant writing and management process with this comprehensive Pricing Calculator and Quote Builder template. Designed for freelance grant writers, nonprofit consultants, and small grant-seeking organizations, this tool helps you quickly generate accurate, professional quotes for grant writing, editing, project management, and researc
